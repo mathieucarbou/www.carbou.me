@@ -6,4 +6,4 @@
 
 #### 🌐 [mathieu.carbou.me](https://mathieu.carbou.me)
 
-#### 🌐 [Mireille](https://lesdelicesdemimi.blogspot.com/)
+#### 🌐 [mireille.carbou.me](https://mireille.carbou.me/)

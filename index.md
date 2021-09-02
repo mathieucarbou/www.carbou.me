@@ -8,7 +8,7 @@
 
 #### 🌐 Blog de Mathieu: [mathieu.carbou.me](https://mathieu.carbou.me)
 
-#### 🌐 Blog de Mireille: [mireille.carbou.me](https://mireille.carbou.me/)
+#### 🌐 Blog de Mireille: [lesdelicesdemimi.blogspot.com](https://lesdelicesdemimi.blogspot.com/)
 
 ### Projects:
 
